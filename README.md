@@ -4,5 +4,5 @@
  Global-English
 ![](https://i.hizliresim.com/6mjbxt6.png)
 
-Tukish
+Turkish
 ![](https://i.hizliresim.com/gxyxdfo.png)
